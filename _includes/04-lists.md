@@ -2,8 +2,8 @@ these are a few of my favourite things;
 1. Food
    1. Pizza
    2. Pie
-   3. Apple 
-   4. Mantı!!! 🍎
+   3. Apple 🍎
+   4. Mantı!!! 
 2. Sports
    1. Soccer ⚽
    2. Basketball 🏀
